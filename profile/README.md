@@ -6,6 +6,6 @@ NordVPN is a VPN app that allows you to surf the Internet with maximum privacy a
 
 
 
-## [🚀💹🎉NordVPN  For PC](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉NordVPN  For PC](https://alipc.pro/dl/)
 
-## [🚀💹🎉NordVPN For Windows            ](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉NordVPN For Windows            ](https://alipc.pro/dl/)
